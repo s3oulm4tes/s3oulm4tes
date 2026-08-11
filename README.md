@@ -2,7 +2,7 @@
     
 ㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ   ㅤ ㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤㅤ   
-ㅤㅤㅤㅤ        ㅤ     <a href="https://t.me/inf0r11nn">
+ㅤㅤㅤㅤ        ㅤ     <a href="https://t.me/inf0s3oul">
  <img width="110" height="30" alt="image" src="https://github.com/user-attachments/assets/a8f498aa-ea93-4354-84d7-b66cd69e8b00" />
 </a>
 ㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤ <a href="https://open.spotify.com/playlist/3U0HXGyZjeSzdHDcYJYHDE?si=07b254595fc14d12">
