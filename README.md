@@ -49,7 +49,8 @@ ___
 <p align="center"</p>ㅤ
 <img width="510" height=95" alt="image" src="https://github.com/user-attachments/assets/a28d97cb-60a7-4f5b-acd3-5c1a7c654ce3" />
 <p align="center"</p>
-ㅤ<img width="496" height="52" alt="image" src="https://github.com/user-attachments/assets/13d84f25-3478-4c8c-8c98-a8635f3c34ce" />
+ㅤ<img width="500" height="52" alt="image" src="https://github.com/user-attachments/assets/d1f1c74c-1a23-4bde-b77a-a7953c8c7b93" />
+
 
 ___
 <p align="center"</p>
